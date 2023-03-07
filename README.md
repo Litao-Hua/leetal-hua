@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning many things,mainly about JS stuff;
 - 👯 I’m looking to collaborate on coding and study;
 - 🤔 I’m looking for help with projects;
-- 💬 Ask me about ...,nop,I can't answer it;
+- 💬 Ask me about ...,don't do that,I can't answer it;
 - 📫 How to reach me: 3095414427@qq.com;
 - 😄 Pronouns: KfDh;
 - ⚡ Fun fact: Hah;
