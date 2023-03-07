@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with projects;
 - 💬 Ask me about ...,don't do that,I can't answer it;
 - 📫 How to reach me: 3095414427@qq.com;
-- 😄 Pronouns: KfDh;
+- 😄 Pronouns: KfDh; Keep focus,don't hesitation;
 - ⚡ Fun fact: Hah;
